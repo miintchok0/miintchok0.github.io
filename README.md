@@ -1,0 +1,1 @@
+# miintchok0.github.io
